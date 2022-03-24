@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Mathz!
+- 👀 I’m interested in making codes!
+- 🌱 I’m currently learning how to make Friday Night Funkin' mods!
+- 💞️ I’m looking to collaborate on no one!
